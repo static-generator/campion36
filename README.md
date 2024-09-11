@@ -2,10 +2,8 @@
 ## Kyle Johan A. Sto Domingo
 > Bagumbayan Sur, Naga City 
 ---
-Wishlist of Places to go
-1. Japan
-2. Paris
-3. idk 
+Interests 
+1. Football
 
 Social Media
 
