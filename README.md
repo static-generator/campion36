@@ -9,4 +9,4 @@ Wishlist of Places to go
 
 Social Media
 - [Facebook](https://www.facebook.com)
-- [Instagram](www://ww.instagram.com)
+- [Instagram](www://www.instagram.com)
