@@ -2,7 +2,7 @@
 ## Kyle Johan A. Sto Domingo
 > Bagumbayan Sur, Naga City 
 ---
-### Interests 
+### **Interests**
 1. Football
 
 Social Media
