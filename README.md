@@ -8,5 +8,6 @@ Wishlist of Places to go
 3. idk 
 
 Social Media
+
 - [Facebook](https://www.facebook.com)
-- [Instagram](www://www.instagram.com)
+- [Instagram](https://www.instagram.com)
